@@ -1,6 +1,6 @@
 # Hey there! 👋
 
-I'm strinsx, a 3rd year Information Technology student at #Rizal Technological University
+I'm strinsx, a 3rd year Information Technology student at # Rizal Technological University
 
 I specialize in full stack web development and enjoy building modern, scalable, and user-focused applications.
 
