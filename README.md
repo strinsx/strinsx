@@ -22,8 +22,7 @@ I'm also deeply interested in philosophy and the writings of Marcus Aurelius and
 ### Fun Facts
 - I genuinely enjoy learning software engineering fundamentals
 - I like mixing philosophy with personal growth
-- I probably spend too much time thinking about systems and discipline
-- I enjoy building things more than talking about them
+- One of my goals was to reach immortal and Diamond in a single account on both Valorant and League of Legends. 
 
 > “Perfection is not when there is nothing more to add, but when there is nothing left to take away.”
 
