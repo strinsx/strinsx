@@ -13,7 +13,7 @@ Outside programming, I spend a lot of time reading self-improvement books and ph
 ### Top 3 Books / Works
 1. *Mastery* — Robert Greene  
 2. *Vagabond* — Takehiko Inoue  
-3. *Ego Is the Enemy* — Ryan Holiday  
+3. *Discipline is Destiny* — Ryan Holiday  
 
 I'm also deeply interested in philosophy and the writings of Marcus Aurelius and Miyamoto Musashi.
 
